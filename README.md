@@ -1,2 +1,4 @@
 # monster-legends-mod-apk
 This strategy game is always three stars WIN with Monster Legends Mod. It is always possible to win battles in this mod game by getting three stars. This will reward you with a lot of rewards. You will find this game easy with this mod. Good luck!
+<p> https://app-downloaded.com/product/monster-legends-mod-apk/ <p>
+  Tags: mod apk monster legends, monster legends apk mod, monster legends hack mod apk, monster legends mod, monster legends mod apk, monster legends mod apk 2020, monster legends mod apk download, monster legends mod apk unlimited everything, monster legends mod apk unlimited everything 2020, monster legends mod apk unlimited everything 2021, monster legends mod apk unlimited everything android 1, monster legends mod apk unlimited gems, monster legends mod apk unlimited gems and food
